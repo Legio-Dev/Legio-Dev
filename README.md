@@ -1,5 +1,5 @@
 # 💫 About Me:
-📍Location: Quito, Ecuador<br>📧 Email: desarrollo@legio.ec<br>🎓 Studies: Mechatronic Engeneer
+📍Location: Quito, Ecuador 🎓 Studies: Mechatronic Engeneer
 
 
 ## 🌐 Socials:
